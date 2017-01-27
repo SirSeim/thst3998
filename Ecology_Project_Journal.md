@@ -23,7 +23,7 @@ Animals on campus are too comfortable. We had a small flock of birds coming thro
 
 ## Jan 18th, 2017
 
-Squirrels running around campus as usual. Otherwise an unremarkable day of coding and being inside.
+Squirrels running around campus as usual. I realized that there is something I've been hearing that I never realized was an animal reference. At parties and just being in a college student environment, there is the stereotypical act of calling someone a `pussy`. I always think of this slang as just part of the college vocabulary, but really it is an animal slang. Otherwise an unremarkable day of coding and being inside.
 
 ## Jan 19th, 2017
 
