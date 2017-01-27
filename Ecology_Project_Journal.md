@@ -27,4 +27,4 @@ Squirrels running around campus as usual. Otherwise an unremarkable day of codin
 
 ## Jan 19th, 2017
 
-Entry
+Squirrels and birds running and flying around campus. During work, we talked about some of the crazier stories of encounters we've had with the campus animal population. I talked about how I almost caught a raccoon behind a trashcan, and whatever path it tried to get away from me, it would be surprised to me and try another path that it had forgotten it had already tried. I could see its instinctual programming react to my presence and make another attempt to get away from me.
